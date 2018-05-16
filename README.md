@@ -1,1 +1,13 @@
-# s19
+http://www.kyyxc.com
+http://www.l3fai.com
+http://www.laah1.com
+http://www.lck90.com
+http://www.le118.net
+http://www.lika2.com
+http://www.ln978.com
+http://www.lop79.com
+http://www.lozlv.com
+http://www.lq180.com
+http://www.lriri.com
+http://www.ltrc2.com
+http://www.lume3.com
